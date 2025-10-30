@@ -2,7 +2,10 @@
 We are group 7 and we are pro
 
 # Our pro members:
-Bro. Reyes \n
-Afludor \n
-piNinyAhan \n
-Ms. Ellaiza C. Vizcayno \n
+Bro. Reyes 
+
+Afludor 
+
+piNinyAhan 
+
+Ms. Ellaiza C. Vizcayno 
